@@ -7,9 +7,9 @@ Contact with me to get the Password of Zip file on :
   
  Email : erfan4lx@gmail.com
   
-  ## Show on Youtube : https://youtu.be/D7DZbCFvOjg
- 
-## • Our Channels : 
+ Show full video on YouTube : https://youtu.be/D7DZbCFvOjg
+
+Show demo video on Instagram : https://www.instagram.com/p/CMQKaY7gnDI
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
